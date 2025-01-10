@@ -1,0 +1,1 @@
+# TrendWorx-Research
